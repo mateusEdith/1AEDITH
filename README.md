@@ -1,0 +1,2 @@
+# 1AEDITH
+pensamento computacional
